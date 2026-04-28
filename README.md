@@ -2,7 +2,7 @@
   
 ![](https://i.imgur.com/mrmVuGO.png)
 
-**me** and **wifey** <br> also dont use the art i commissioned it thans 
+**me** and **wifey** <br> also dont use the art i commissioned it thans <br> ![](https://komarev.com/ghpvc/?username=vampaku&label=ungeziefer_&color=955d3c&style=flat&base=12)‎ 
 
 ᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗ
 
