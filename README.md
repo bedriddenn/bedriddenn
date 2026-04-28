@@ -1,13 +1,13 @@
 <div align="center">
+
+<br> [![hits](https://hits.sh/github.com/bedriddenn/hits.svg?label=ungeziefer。&color=efeae2&labelColor=3b2f3b)](https://hits.sh/github.com/bedriddenn/hits/) 
   
 ![](https://i.imgur.com/mrmVuGO.png)
 
-**me** and **wifey** <br> also dont use the art i commissioned it thans <br> ![](https://komarev.com/ghpvc/?username=vampaku&label=ungeziefer_&color=955d3c&style=flat&base=12)‎ 
+**me** and **wifey** <br> also dont use the art i commissioned it thans
 
 ᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗ
 
-gregor 18 he/him
-
-[click 4 palestine](https://arab.org/click-to-help/palestine/) <br> [atabook](https://rodyapilled.atabook.org/) <br> [rentry](https://rentry.co/cpubeetle)
+gregor 18 he/him <br> [click 4 palestine](https://arab.org/click-to-help/palestine/)  ‎ ‎ ‎ ‎ ‎ [atabook](https://rodyapilled.atabook.org/) ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/cpubeetle)
 
 ᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗ
