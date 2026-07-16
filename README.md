@@ -8,6 +8,6 @@
 
 ᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗ
 
-gregor 18 he/she <br> [click 4 palestine](https://arab.org/click-to-help/palestine/)  ‎ ‎ ‎ ‎ ‎ [atabook](https://rodyapilled.atabook.org/) ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/cpubeetle)
+gregor 18 he/him <br> [click 4 palestine](https://arab.org/click-to-help/palestine/)  ‎ ‎ ‎ ‎ ‎ [atabook](https://rodyapilled.atabook.org/) ‎ ‎ ‎ ‎ ‎  [rentry](https://rentry.co/cpubeetle)
 
 ᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗᴗ
